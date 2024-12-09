@@ -11,3 +11,11 @@
 ---
 > Siempre la prefiero con cebolla, sin cebolla está seca
 >> Victoria Aguilar
+
+<br>  
+  
+> **Con cebolla**. Esto es solo mi opinión personal y no representa a nadie más. Sin embargo :
+>
+>   * deberían aprobar la asignatura aquellos que digan *sin cebolla* ?
+>
+>>  Jose V. Die 

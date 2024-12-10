@@ -18,4 +18,10 @@
 >
 >   * deberían aprobar la asignatura aquellos que digan *sin cebolla* ?
 >
->>  Jose V. Die 
+>>  Jose V. Die
+
+<br>
+
+> **Sin cebolla**. La cebolla tapa a la verdadera protagonista: la patata.
+>
+>>  Claudia G.

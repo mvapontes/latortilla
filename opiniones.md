@@ -22,6 +22,11 @@
 
 <br>
 
+> Me encanta la tortilla sin cebolla, además la cebolla puede arruinar una receta tan exquisita si se quema o se queda cruda.
+>
+>> Claudia G.
+
+
 > **Sin cebolla**. La cebolla tapa a la verdadera protagonista: la patata.
 >
 >>  Claudia G.

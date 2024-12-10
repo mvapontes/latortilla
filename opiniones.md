@@ -18,4 +18,9 @@
 >
 >   * deberían aprobar la asignatura aquellos que digan *sin cebolla* ?
 >
->>  Jose V. Die 
+>>  Jose V. Die
+
+<br>
+
+>La tortilla es **MUCHO MEJOR** con cebolla, sin cebolla le falta gracia.
+>Ojo, que no es sólo porque lo diga yo eh, sino porque lo dicen

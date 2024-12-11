@@ -53,6 +53,11 @@
 > En mi opinión la tortilla es mejor **con cebolla**, sin cebolla creo que está más sosa.
 >> Ana León Miranda
 
+> **Con cebolla**, porque le da mucho mas sabor.
+>> Ana Liqing Sánchez Castellano
+
+
+
 > a;slkdjf laskdf
 >> Victoria uco2
 

@@ -19,3 +19,6 @@
 >   * deberían aprobar la asignatura aquellos que digan *sin cebolla* ?
 >
 >>  Jose V. Die 
+
+> Ambas están muy ricas, ¡pero la cebolla le da un toque especial!
+>>  Juan de Dios Castillo 

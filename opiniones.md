@@ -20,10 +20,12 @@
 >
 >>  Jose V. Die 
 
+<br>
 
 > Yo siempre con cebolla, la mejor la de mi madre!!!
 >> Laura Ferrer 
 
+<br>
 
 > Ambas están muy ricas, ¡pero la cebolla le da un toque especial!
 >>  Juan de Dios Castillo 
@@ -34,18 +36,19 @@
 >
 >> Claudia G.
 
+<br>
 
 > **Sin cebolla**. La cebolla tapa a la verdadera protagonista: la patata.
 >
 >>  Claudia G.
 
->La tortilla es **MUCHO MEJOR** con cebolla, sin cebolla le falta gracia.  
->Ojo, que no es sólo porque lo diga yo eh, sino porque lo dice el 70% de la población.  
+<br>
+
+> La tortilla es **MUCHO MEJOR** con cebolla, sin cebolla le falta gracia.  
+> Ojo, que no es sólo porque lo diga yo eh, sino porque lo dice el 70% de la población.  
 >
->*Ah, y si puede ser que no este muy hecha mejor ;)*  
+> *Ah, y si puede ser que no este muy hecha mejor ;)*  
 >> Carlos González
-
-
 
 
 <br>  
@@ -62,18 +65,22 @@
 > + En este [artículo](https://www.esquire.com/es/donde-comer-beber/a44381507/tortilla-patatas-con-sin-cebolla-chefs-michelin/) aunque la mayoría dice que la prefiere con cebolla, estoy más de acuerdo con quienes dicen que la prefieren sin.
 >> MJose Zamorano
 
+<br>
 
 > Prefiero la tortilla **con cebolla** porque le da un sabor único.
 >> Abril García Luque
 
+<br>
 
 > En mi opinión la tortilla es mejor **con cebolla**, sin cebolla creo que está más sosa.
 >> Ana León Miranda
 
+<br>
+
 > **Con cebolla**, porque le da mucho mas sabor.
 >> Ana Liqing Sánchez Castellano
 
+<br>
 
-
-> a;slkdjf laskdf
->> Victoria uco2
+**En resumen:**
+Gana por goleeeada **8 a 3** la cebolla que no la patata!

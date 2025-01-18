@@ -14,7 +14,7 @@
 
 ----
 
-<p align="center" width="50%">
+<p align="center" width="10%">
     <img width="50%" src="cipdblogo.png" />
 </p>
 <p align="center">Repositorio público colaborativo de la asignatura <b>Computación, Interpretación y Presentación de datos en Biología</b> del Grado de Biología de la Universidad de Córdoba.</p>
